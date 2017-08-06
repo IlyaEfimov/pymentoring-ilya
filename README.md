@@ -1,1 +1,1 @@
-darova rabotyaga
+Дарова работяга
